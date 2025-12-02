@@ -1,1 +1,1 @@
-Różne zadania algorytmiczne na poziomie olimpijskim - różne poziom trudności.
+Różne zadania algorytmiczne na poziomie olimpijskim - różny poziom trudności.
