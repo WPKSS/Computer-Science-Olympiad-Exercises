@@ -1,0 +1,1 @@
+https://szkopul.edu.pl/c/archiwum-zadan-k0mpend1x/p/gen/
